@@ -17,7 +17,6 @@
 
 - 📫 How to reach me **sumit9161424866@gmail.com**
 
-- ⚡ Fun fact **I am a Athlete**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
